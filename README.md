@@ -1,0 +1,1 @@
+# Farmy_Potato_diseases_challenge_HAICK2022
